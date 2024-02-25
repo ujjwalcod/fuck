@@ -1,2 +1,2 @@
-https://ujjwalcod.github.io/fuck/
+https://ujjwalcod.github.io/fuck/s
 # fuck
